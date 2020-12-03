@@ -1,1 +1,4 @@
 # Chilli-Pepper-Mushroom
+Chill-Pepper-Mushroom , is a title which literally states the main ingredients required for making the dish.
+A simple yet succulent dish, Chilli Pepper Mushroom , a dish made by Chef Ranisha , fills you up as well as leaves you wanting for more, if not overdone.
+Easy to cook, this dish takes only 10 minutes to take and once eaten , becomes their favorite.With a combination of easy cooking and minimal ingredients , Chilli Pepper Mushroom is the go-to-dish when you are short on time or simply are very hungry;with the added benefit of being healthy as well as tasty, a combination, which few dishes acheive.
